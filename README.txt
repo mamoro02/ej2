@@ -16,3 +16,9 @@ sobre mi calva infantil!
 en el salón familiar,
 las claras tardes de estío
 en que yo empecé a soñar!
+
+//CUARTA ESTROFA
+Y en la aborrecida escuela,
+raudas moscas divertidas,
+perseguidas
+por amor de lo que vuela,
