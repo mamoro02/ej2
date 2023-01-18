@@ -10,3 +10,9 @@ me evocáis todas las cosas
 como abejas en abril,
 viejas moscas pertinaces
 sobre mi calva infantil!
+
+//TERCERA ESTROFA
+¡Moscas del primer hastío
+en el salón familiar,
+las claras tardes de estío
+en que yo empecé a soñar!
